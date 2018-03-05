@@ -1,0 +1,2 @@
+# intel
+mining intense coin
